@@ -75,3 +75,6 @@ If you think any of the roadmaps can be improved, feel free to discuss it in the
 ## License
 
 Have a look at the [license file](./LICENSE) for details
+
+## Neki lik objavio
+https://onedrive.live.com/?authkey=%21ACqy%2D1%5FxH9uzkkg&id=92B40345695D7131%21449&cid=92B40345695D7131
